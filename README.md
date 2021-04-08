@@ -1,1 +1,1 @@
-# BaigiamasisamasisAB
+# Baigiamasis
